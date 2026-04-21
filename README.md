@@ -27,3 +27,4 @@ Key insights
 To build professional dashboards that help in understanding data and making better decisions.
 
 🤝 Connect
+www.linkedin.com/in/mohamed-ayad-382274328
